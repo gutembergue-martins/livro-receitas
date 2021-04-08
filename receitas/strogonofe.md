@@ -14,7 +14,7 @@
 
 6. Sirva com arroz branco e batata palha.
 
-7. Agora lave a louça
+7. Agora lave a louça rápido para ver série
 
    
 
