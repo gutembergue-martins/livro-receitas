@@ -4,4 +4,5 @@
 
 - _Strogonoffe de frango_
 - _Feijoada_
+- _Churrasco_
 
